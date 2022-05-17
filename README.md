@@ -1,0 +1,6 @@
+- 👋 Ola! Eu sou o Eduardo 
+- 👀 tenho 15 anos 
+- 🌱 interesse em fazee "agronomia" 🙏
+- 💞️ amo minha família 💕 
+- 📫 moro em PG 
+- ⚽️ gosto muito de jogar bola 
